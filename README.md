@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Layver77
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning interesting things
+- 💞️ I’m looking to collaborate on learning new things
+- 📫 How to reach me Layver.alves@hotmail.com
